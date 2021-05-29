@@ -1,1 +1,1 @@
-## Just simple pngs and svgs
+## Just simple pngs and svgs for profile page
